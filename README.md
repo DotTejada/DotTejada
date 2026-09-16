@@ -6,3 +6,4 @@ CS AMP 2028 at The University of Alabama
 - Math Minor
 - Houston, Texas
 - Email: dylan.ot24@gmail.com
+- WCA Profile: https://www.worldcubeassociation.org/persons/2018TEJA03
